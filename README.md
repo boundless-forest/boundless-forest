@@ -1,12 +1,8 @@
 
-西风烈，长空雁叫霜晨月。霜晨月，马蹄声碎，喇叭声咽。
+一曲新词酒一杯，去年天气旧亭台，夕阳西下几时回？
 
-The wild west wind blows strong, the morning moon shivers at the wild geese’s song.
+I compose a new song and drink a cup of wine. In the bower of last year when weather is as fine. When will you come back now the sun’s on the decline?
 
-On frosty morn, steeds trot with hooves out worn, and bugles blow forlorn.
+无可奈何花落去，似曾相识燕归来，小园香径独徘徊。
 
-雄关漫道真如铁，而今迈步从头越。从头越，苍山如海，残阳如血。
-
-Fear not the strong pass iron-clad on all sides! The summit’s now surmounted with big strides.
-
-Surmounted with big strides, green mountains like the tide, the sunken sun blood-dyed.
+Deeply I sign for the fallen flowers in vain. Vaguely I seem to know the swallows come again. Loitering on the garden path, I alone remain.
